@@ -8,4 +8,4 @@ i love u peropero games i love Muse Dash
 
 u website gorgeous 
 
-i feel sorry to crawler ur website
+i feel sorry to crawl ur website
